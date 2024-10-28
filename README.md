@@ -16,3 +16,6 @@ Nossa HQ segue a trajetória de Lucas, um jovem explorador que encontra pistas d
 1. A descoberta das pistas e formação da equipe.
 2. A jornada em busca do artefato, enfrentando desafios e inimigos.
 3. O confronto final e a revelação do segredo por trás do artefato.
+
+
+https://trello.com/b/yXuA2Byt/conectados-kanbam
